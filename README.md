@@ -1,2 +1,1 @@
-Studying computer science.
-Play basketball too ✌️
+Rn studying in Instituto Tecnológico de la Laguna
